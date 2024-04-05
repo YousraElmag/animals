@@ -1,3 +1,3 @@
-#dog
+# dog
 ![alt text](https://i.postimg.cc/kGV0hSH8/_تنزيل_(2).jpg)
 Dog, (Canis lupus familiaris), domestic mammal of the family Canidae (order Carnivora). It is a subspecies of the gray wolf (Canis lupus) and is related to foxes and jackals. The dog is one of the two most ubiquitous and most popular…
