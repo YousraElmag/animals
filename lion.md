@@ -1,3 +1,3 @@
-#lion
+# lion
 ![alt text](https://i.postimg.cc/fWKbh7Nm/black-maned-lion-shem-compion-786x500.jpg)
 Lion, (Panthera leo), large, powerfully built cat (family Felidae) that is second in size only to the tiger; it is a famous apex predator (meaning without a natural predator or enemy). The proverbial “king of beasts,” the lion has…
